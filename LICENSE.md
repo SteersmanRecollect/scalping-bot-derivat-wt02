@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top Automation Script for scalping bot for derivatives | leverage-management + cross-margin, the #1 scalping bot for derivatives. Includes
 
 
 
